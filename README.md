@@ -1,6 +1,6 @@
 ---
 
-### <p align="center">   | To Inform | 
+### <p align="center">   | Brief Summary | 
 <p align="center">  Jett : 19 Female INTJ
 <p align="center"> Transformers | Metal Gear Solid 
 <p align="center"> <a[Atabook]() - [Strawpage] 
