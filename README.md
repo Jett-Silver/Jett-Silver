@@ -1,6 +1,6 @@
 ---
 
-### <p align="center"> | Jett : 19 Female INTJ |
+### <p align="center"> | Adult Female |
 
 <p align="center"> Socially Inept, Expect behavior as such
 <p align="center"> <a[Atabook]() - [Strawpage] 
