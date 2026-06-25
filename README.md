@@ -1,5 +1,5 @@
 ---
-![Image](https://i.postimg.cc/3J8x9pr3/Brokeback.png)
+![Image](https://i.postimg.cc/MpMDzgSf/Screenshot-2026-06-25-155236.png)
 
 <p align="center"> Adult | Female | Lesbian
 
